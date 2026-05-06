@@ -1,0 +1,1 @@
+# vossalan-assets
